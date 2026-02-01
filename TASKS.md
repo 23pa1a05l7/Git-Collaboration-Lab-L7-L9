@@ -1,1 +1,1 @@
-Collaborator created this task file.
+Collaborator created task file.
